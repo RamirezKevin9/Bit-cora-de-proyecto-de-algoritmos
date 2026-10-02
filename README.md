@@ -1,1 +1,1 @@
-# Bit-cora-de-proyecto-de-algoritmos
+# Bitacora-de-proyecto-de-algoritmos
