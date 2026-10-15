@@ -22,4 +22,4 @@ y por ultimo y no menos importante el modo infinito que se acaba asta que te abu
 
 eso aplicando con todo lo demas ddel codigo con su funciones para que se mueste en la pantalla de selecion para que se acuerden que tienen que crearlos mis compañeros eo fue todo lo que cree el dia de hoy
 
-tengo sueños 😑
+tengo sueño 😑
